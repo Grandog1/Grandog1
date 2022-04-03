@@ -1,0 +1,3 @@
+- Hi, I’m @Grandog1
+- I'm learning how to code and i started the 29th march 2022
+- How to reach me: discord= UGO IVO(S8422209X) #5466
